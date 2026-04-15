@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MEGI021118MGTZDVA3
+MEGI021118MGTZDVA3
